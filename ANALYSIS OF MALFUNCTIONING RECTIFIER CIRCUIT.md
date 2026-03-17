@@ -7,7 +7,7 @@
 ## ATTACH THE CORRECT CIRCUIT
 
 ## GRAPHS
-![3 (1)](https://github.com/user-attachments/assets/6a8fda56-d1a2-4afe-b0a2-5c9a689d6953)
+
 
 
 
