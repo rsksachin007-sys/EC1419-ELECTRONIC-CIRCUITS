@@ -16,6 +16,7 @@
 ## Tabulation
 
 ## Graph
+<img width="1907" height="925" alt="Screenshot 2026-03-20 090048" src="https://github.com/user-attachments/assets/89f3e84e-6ff1-4fa4-b727-5dc71e6dcf36" />
 
 <img width="693" height="167" alt="image" src="https://github.com/user-attachments/assets/b1dcf583-cd07-4a28-8aad-9a4a8c82e5d9" />
 
