@@ -10,7 +10,9 @@
 ![image6](https://github.com/user-attachments/assets/161baefa-5460-422a-991e-04efeb37ad8e)
 
 ## Graph
+![WhatsApp Image 2026-03-28 at 8 56 26 AM](https://github.com/user-attachments/assets/b3cf1149-1a97-490a-bbde-5624bf9984fa)
 
+![WhatsApp Image 2026-03-28 at 8 56 26 AM (1)](https://github.com/user-attachments/assets/1b6d31f4-f2a3-4005-a847-54c060d98605)
 
 <img width="853" height="183" alt="image" src="https://github.com/user-attachments/assets/ee91e1c1-171c-4208-83ee-e61ea1ba626c" />
 
