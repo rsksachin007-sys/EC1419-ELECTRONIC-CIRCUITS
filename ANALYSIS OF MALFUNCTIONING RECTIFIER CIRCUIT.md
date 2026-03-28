@@ -8,6 +8,8 @@
 ![image6](https://github.com/user-attachments/assets/fd247ac4-8c89-4aac-bcd3-e6c0e7e08d92)
 
 ## GRAPHS
+![WhatsApp Image 2026-03-28 at 8 56 26 AM](https://github.com/user-attachments/assets/6d7f3b05-7df7-4294-a7b8-0c5c26ed5ad1)
+![WhatsApp Image 2026-03-28 at 8 56 26 AM (1)](https://github.com/user-attachments/assets/8c696b41-dc90-4ed7-bad6-ba32ee5553cb)
 
 
 
